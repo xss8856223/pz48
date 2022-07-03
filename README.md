@@ -6,7 +6,7 @@
 
 # 骗子的信息
 首先聊天记录在这里
-![A2$IDXKR8JA5)`8$WP_74KU](https://user-images.githubusercontent.com/108621335/177045526-79406627-d4b4-437b-8af3-01992b9c5a69.jpg)
+![EER~JAV3)7HV{BB%U1_@{CI](https://user-images.githubusercontent.com/108621335/177045889-4949c76a-3a86-45ff-8a93-379c25e4202b.jpg)
 
 我通过一些合法的手段定位了骗子的相关位置。
 
